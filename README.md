@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :blue_heart💙
+### Boas vindas ao meu perfil :blue_heart
 
 Meu nome é Carolliny Victoria 
 -estou estudando no [Alura](https://www.alura.com.br)
